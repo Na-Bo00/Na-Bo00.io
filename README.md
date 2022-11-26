@@ -1,4 +1,4 @@
-# Na-Bo00.io
+# nabo.io
 About Me / Profile / Portfolio
 
 
